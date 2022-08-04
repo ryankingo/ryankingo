@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ryankingo
+- 👋 Hi, I’m @ryanbless
 - 👀 I’m interested in skin no wild rift
 - 🌱 I’m currently learnin nada
 - 💞️ I’m looking to collaborate on  em ganhar skin no wild rift
